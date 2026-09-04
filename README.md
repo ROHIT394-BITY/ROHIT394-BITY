@@ -1,6 +1,4 @@
 - 👋 Hi, I’m @ROHIT394-BITY
-- 👀 I’m interested in writing content for various niche
-- 🌱 I’m currently learning video editing
 - 💞️ I’m looking to collaborate on projects to grow together
 - 📫 How to reach me contact me on my email rohitkumar22012007@gmail.com
 - 😄 Pronouns: he/him
